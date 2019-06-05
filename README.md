@@ -24,3 +24,8 @@
 - Chris has rescued the world. -- *小猪佩奇*  
 
 - Knowledge cannot replace friendship, I'd rather be an idiot than lose you.-- *海绵宝宝*
+
+
+**联系高乾**
+
+> gaoqianchn@qq.com
