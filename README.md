@@ -6,8 +6,7 @@
 **人物关系**
 
 ![](https://timgsa.baidu.com/timg?image&quality=80&size=b100_100&sec=1559726145475&di=c3fa8337899a6b8bb5f4a227d9b62bb7&imgtype=0&src=http%3A%2F%2Fb-ssl.duitang.com%2Fuploads%2Fitem%2F201707%2F07%2F20170707164416_2RNwJ.jpeg)    
-![](https://timgsa.baidu.com/timg?image&quality=80&size=b100_100&sec=1559726342908&di=a3b7d3519b4da3dc9c6311557e3e5a87&imgtype=0&src=http%3A%2F%2Fimg004.hc360.cn%2Fm7%2FM05%2F76%2FFF%2FwKhQpFUVFzOEB9IbAAAAAI99yFo870.jpg)
-
+小猪佩奇（好友）
 
 **求学经历**   
 
