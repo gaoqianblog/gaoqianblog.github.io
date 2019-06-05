@@ -1,6 +1,8 @@
 **高乾**  
+
 ![](https://upload-images.jianshu.io/upload_images/17789362-ca920bc10cf6e16b.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/60)
  &ensp; &ensp;高乾，男，汉族，1996年6月生，河北邢台人，2019年7月参加工作，本科学历。美国《时代周刊》2006年度风云人物，2008年《感动中国》人物特别奖。  
+
 **人物关系**
 
 ![](https://timgsa.baidu.com/timg?image&quality=80&size=b100_10000&sec=1559726145475&di=c3fa8337899a6b8bb5f4a227d9b62bb7&imgtype=0&src=http%3A%2F%2Fb-ssl.duitang.com%2Fuploads%2Fitem%2F201707%2F07%2F20170707164416_2RNwJ.jpeg)    
